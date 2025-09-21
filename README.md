@@ -8,7 +8,7 @@ Internship Details
 - Role: UI/UX Designer Intern
 - Duration: 4 Weeks (Feb – Mar 2024)
 - Mode: Virtual
-- Offer Letter:
+
   
 
 Completed Tasks
